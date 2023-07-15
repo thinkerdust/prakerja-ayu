@@ -1,1 +1,0 @@
-# PRAKERJA BATCH 6
